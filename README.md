@@ -1,0 +1,2 @@
+# FatahGaming
+Gunakan Dengan Bijak
